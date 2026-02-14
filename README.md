@@ -1,4 +1,4 @@
-I'm a *82" Dynamically-typed Dragon Pool Float Inflatable. Outdoors Open-Source Toy Fantasy Low-Maintenance High-Performance Human Input-Interface Scalable Futureproof Pragmatic Indoors Bathroom for adults [REQUIRES PET OIL] (Cyan/Aqua Eyes)*
+I'm an *82" Dynamically-typed Dragon Pool Float Inflatable. Outdoors Open-Source Toy Fantasy Low-Maintenance High-Performance Human Input-Interface Scalable Futureproof Pragmatic Indoors Bathroom for adults [REQUIRES PET OIL] (Cyan/Aqua Eyes)*
 
 <picture>
   <img src="/github-metrics.svg" alt="Metrics">
